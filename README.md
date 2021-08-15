@@ -1,1 +1,1 @@
-![Alt-текст](https://avatars1.githubusercontent.com/u/5384215?v=3&s=460 "Орк")
+![Alt-текст](https://github.com/DaniilMpala/___1___EZCUSH.RU/blob/main/image.png?raw=true "Орк")
